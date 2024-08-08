@@ -13,4 +13,4 @@ matheushenriaguiar909@gmail.com
 
 @Matheus77Aguiar
 
-[![descrição do GIF](link GIF do Tenor)](https://tenor.com/pt-BR/view/neto-craque-neto-gif-23444239)
+![](https://tenor.com/pt-BR/view/neto-craque-neto-gif-23444239)
